@@ -49,6 +49,6 @@
 ---
 
 ## 📫 Connect With Me
-[LinkedIn]() | [Email](mailto:sonalpawar2709@gmail.com)  
+[LinkedIn](https://www.linkedin.com/in/sonalhpawar?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BMKvy5HRLSTKR9zwWBY0Sww%3D%3D) | [Email](mailto:sonalpawar2709@gmail.com)  
 
 *"Building smarter cities, one complaint at a time."* 🏙️
